@@ -7,5 +7,3 @@ Completely Certified loser book slvt & absolute geek in studies. Heavy pansexual
 
 
 ![](https://files.catbox.moe/y1mwwe.png) ![](https://files.catbox.moe/gmvin2.png)
-
-[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31xyw2ayeoyxm2juyokqwwmvhl74&cover_image=true&theme=natemoo-re&show_offline=false&background_color=121212&interchange=true&bar_color=b14e4e&bar_color_cover=true)](https://spotify-github-profile.kittinanx.com/api/view?uid=31xyw2ayeoyxm2juyokqwwmvhl74&redirect=true)
