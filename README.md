@@ -1,5 +1,5 @@
 I'm a chill guy idk, I like a lot of things, mains are Warrior Cats, Stardew Valley & Greek Mythology.‎ ‎‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ 
-Completely Certified loser book slvt & absolute geek in studies. Heavy pansexual who cuddles men biceps
+Completely Certified loser book slvt & absolute geek in studies. Heavy pansexual who cuddles men's biceps
 
 ——— I dwell in the internet ᓚ₍ ^. .^₎
 
